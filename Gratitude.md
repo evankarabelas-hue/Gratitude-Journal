@@ -13,4 +13,5 @@
 - 4/18/2026 - I’m grateful for building and presenting my LeadFit AI app.
 - 4/21/2026 - I’m grateful for making progress on my redesign UI/UX project today.
 - 4/22/2026 - I am grateful for completing my design today. 
-I'm grateful for completing my demo on Craigslist redesign.
+ 4/24/2026 - I'm grateful for completing my demo on Craigslist redesign.
+- 4/25/2026 - I'm grateful we're doewn the  final stretch and into week 7. 
