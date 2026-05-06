@@ -16,3 +16,4 @@
  4/24/2026 - I'm grateful for completing my demo on Craigslist redesign.
 - 4/25/2026 - I'm grateful we're doewn the  final stretch and into week 7. 
 - 5/1/2026 - I'm grateful for all the growth I've shown in the last 7 weeks of the course.
+- 5/4/2026 - I'm grateful that I'm coming down the stretch and getting ready for the final demo.
