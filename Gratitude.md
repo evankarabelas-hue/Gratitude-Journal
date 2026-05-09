@@ -17,4 +17,5 @@
 - 4/25/2026 - I'm grateful we're doewn the  final stretch and into week 7. 
 - 5/1/2026 - I'm grateful for all the growth I've shown in the last 7 weeks of the course.
 - 5/4/2026 - I'm grateful that I'm coming down the stretch and getting ready for the final demo.
-- 5/6/2026 - I'm grateful todays the last day and I get to present my final project.
+- 5/5/2026 - I'm grateful todays the last day and I get to present my final project.
+- 5/6/2026 - Today I finished my MVP presentation and recorded my Loom demo. I’m grateful that I kept pushing even when building felt overwhelming.
